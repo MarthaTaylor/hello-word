@@ -1,2 +1,2 @@
 # hello-word
-Plenty of things to help us on our beautiful way
+hello to our friend WORD, the word of peace, hope, love, life, plenty of joy, comradery, bridges, wisdom, laughter, insight and joy.
